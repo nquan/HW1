@@ -1,3 +1,0 @@
-Nayong Quan
-
-Huston Rocket
